@@ -4,7 +4,7 @@
 > All certifications listed are actively offered by K21 Academy.
 
 ---
-<img width="541" height="302" alt="image" src="https://github.com/user-attachments/assets/3a16b9ab-f397-442c-9a02-4fa0fc74838b" />
+<img width="941" height="650" alt="image" src="https://github.com/user-attachments/assets/3a16b9ab-f397-442c-9a02-4fa0fc74838b" />
 
 ## 📊 Complete Career Progression Overview
 
